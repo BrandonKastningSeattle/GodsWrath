@@ -53,4 +53,7 @@ To ALL DIVINE CREATION:
 
 "I Brandon Roger Kastning; Have since I was a Young Teenager Sinning with a Computer (Fully Ensnared Post Eyewitness to Adonai YHVH Yeshua Ha-Machiac's Rapture Ships with My Two Witnesses (My Mother, Sandra Lynn Fremmerlid and My Sister, Barbara-Jean Kastning); I have heard with Intrusive and Disturbing Thoughts ("I AM G-d") when I was utilizing Script Kiddie RAT'S, Subseven and violating God-Given, American Constitutionally Bound, Guaranteed and Protected Rights of Never Met People Before. And specifically with a "White" Intel USB Web Cam before The U.S. DOJ/FBI as a Minor Raided and Left me for Dead [Full Disclosure Coming] in 12/22/2000 at 6AM w/ 36+ FBI Agents with Machine Guns (MP5's), Side Arms (Glocks), Two "White" RAID Seizure Vans; 2 Years later, Zero Charges from DOJ; Trojan Horses, RAT's, Skiddy Scripts on a Hadd Drive Returned In-Tact which I PTSD buried in My "Father's" Property."
 
+Sources: 
+
+https://www.dal.net/news/shownews.php?id=13
  
